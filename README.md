@@ -1,1 +1,1 @@
-# fnall.github.io
+# fortniteall.github.io
